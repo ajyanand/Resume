@@ -1,3 +1,3 @@
 # My Current Resume
 
-[Resume](https://github.com/ajyanand/Resume/blob/main/ATS%20Resume%20Ajay%20May%202023%20Full_JnJ.pdf)
+[Resume](https://github.com/ajyanand/Resume/blob/main/2025-10-Resume-ATS-Ajay-v0.pdf)
